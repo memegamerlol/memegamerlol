@@ -6,4 +6,4 @@
 - 😄 Pronouns: penutbutter
 - ⚡ Fun fact: im a youtuber
 
-![isdfifdhjfdjhdfghjgklgfdjhklgsfd](https://github.com/memegamerlol/memegamerlol/assets/145916007/feae071c-1658-454d-9f63-e7e4fced5b01)
+[bhaa](https://ibb.co/27P84LPd)
